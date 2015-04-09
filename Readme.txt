@@ -24,3 +24,5 @@ Over 13 years experience in delivering complex software projects specializing in
 . Mentoring and coaching teams to be able to perform and excel 
 . A very peculiar mix of leadership, management and technical capabilities to get the right results out
 . 
+
+Refine Sapient experience
